@@ -8,3 +8,7 @@ Breed:**Beagle**
 
 Location:**Philadelphia**
 
+
+
+Skills:Following scent trils,digging holes,treeing squirrels。
+
